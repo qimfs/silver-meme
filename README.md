@@ -1,1 +1,2 @@
-MINHA TRAJETÓRIA COMO DEV
+🚀 Minha Trajetória como Desenvolvedor
+By: Miquéias
